@@ -18,40 +18,47 @@ she <img width="50" height="129" alt="Untitled424-20251025103945" src="https://g
 
   
   
-  )  OSC
+   ${\color{paleturquoise} GACHA LIFE}$
  
-  )  PASWG
+   ${\color{paleturquoise} OSC}$
+ 
+   ${\color{paleturquoise} PASWG}$
+  
+   ${\color{paleturquoise} MAZERUNNER}$
 
-  )  MAZE RUNNER
+   ${\color{paleturquoise} OTHER FANDOMS}$
 
-  )  DW
 
-  )  ALNST
 
-  )  RBLX 
 
-  )  OTHER FNDOMS I CANT REMEMBER ! 
 
    F a v f o o d s / d r i n k s  
    ![40468003](https://github.com/user-attachments/assets/09a74aa6-4dad-4c4b-aa5f-22ca9fd5448f)  l i s t !
   
    
-   
+   ${\color{paleturquoise} FRIES}$
 
-   ) FRIES
+   ${\color{paleturquoise} CHOCOLATE}$
 
-   
-   ) CHOCOLATE
+   ${\color{paleturquoise} FISHBALLS}$
+
+   ${\color{paleturquoise} JOYRIDE}$
+
+   ${\color{paleturquoise} W A T E R}$
+
+   ${\color{paleturquoise} ROYAL}$
+
+   ${\color{paleturquoise} MILKTEA}$
+
+![_](https://github.com/user-attachments/assets/a9141e2d-952e-4fa4-ac9e-a2dc3f4b7ba2)
+
  
-   ) FISHBALLS
 
-   ) JOYRIDE - the candy by Ryan trahan
-
+[MY.ATABOOK!](https://apolurez.atabook.org/)    ,    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5DCDF7&width=435&lines=poppy+is+my+wife+!;I+love+my+friends+in+pt!;I+farted+!)](https://git.io/typing-svg)
 
 
-
-   . . . 
-   THIS IS A WIP
+bye pls c+h and int with me !! 
+  
 
 
 
