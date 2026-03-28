@@ -15,19 +15,36 @@ she <img width="50" height="129" alt="Untitled424-20251025103945" src="https://g
 ![0-92e28-d92c5a4c-XXXL](https://github.com/user-attachments/assets/d19dc4dc-7434-4ffa-82a3-b1f24e83b141)
      f a n d o m s  ! 
 ![b74](https://github.com/user-attachments/assets/9b6edf59-5164-49bf-8208-58fbdd3bfb7c)  i am in . .
+
+  
+  
   )  OSC
+ 
   )  PASWG
+
   )  MAZE RUNNER
+
   )  DW
+
   )  ALNST
+
   )  RBLX 
+
   )  OTHER FNDOMS I CANT REMEMBER ! 
 
    F a v f o o d s / d r i n k s  
    ![40468003](https://github.com/user-attachments/assets/09a74aa6-4dad-4c4b-aa5f-22ca9fd5448f)  l i s t !
+  
+   
+   
+
    ) FRIES
+
+   
    ) CHOCOLATE
+ 
    ) FISHBALLS
+
    ) JOYRIDE - the candy by Ryan trahan
 
 
